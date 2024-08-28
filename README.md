@@ -19,7 +19,7 @@
 ---
 
 ### 💬 **Get in Touch**
-- **LinkedIn:** [Ansh Pratap Singh](https://linkedin.com/in/ansh-pratap-singh)
+- **LinkedIn:** [Ansh Pratap Singh](https://linkedin.com/in/ansh-pratap-singh-a76589259)
 - **Email:** Thakur4010661@gmail.com
 
 ---
